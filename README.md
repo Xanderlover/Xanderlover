@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ... Computers
 - 💞️ I’m looking to collaborate on ... Computers
 - 📫 How to reach me ... Computer
-- 😄 Pronouns: ... Hee-hoo! (he/him)
+- 😄 Hee-hoo!
 - ⚡ Fun fact: ... Did you know I like computers?!
 
 <!---
