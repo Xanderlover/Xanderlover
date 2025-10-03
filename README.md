@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Xanderlover
+- 👋 Hi, I’m @Xanderlover (guvalee)
 - 👀 I’m interested in ... Computers
 - 🌱 I’m currently learning ... Computers
 - 💞️ I’m looking to collaborate on ... Computers
